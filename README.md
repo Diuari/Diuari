@@ -1,3 +1,3 @@
-### Olá me chamo Diuari Pessoa Bezerra 
+### Olá me chamo Diuari 
 
 ### Estou atualmete estudando no IFPB no curso de ADS
